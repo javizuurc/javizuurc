@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on DAW<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning Web Application Development<br>💬 Ask me about gym<br>⚡ Fun fact: I'm a bonsais enjoyer
+🔭 I’m currently working on 'DAW'<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with 'NOTHING'<br>🌱 I’m currently learning Web Application Development<br>💬 Ask me about gym<br>⚡ Fun fact: I'm a bonsais enjoyer
 
 
 ## 🌐 Socials:
